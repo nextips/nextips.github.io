@@ -1,1 +1,0 @@
-# nextips.github.io
